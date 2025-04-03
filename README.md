@@ -2,9 +2,9 @@
 We Have Filed For Each And Every Trademark or we are currently offering sevices!
 i give permission to make simailar games they just have to mention our business name if it replicates our code!
 [InfiniteG SiteMap Plan Docs](https://baldwinshamesforchange.github.io/InfiniteGorder-PMA/sitemap.html)
-![Profile Views](https://komarev.com/ghpvc/?username=N0TLuck0xF&color=blue)  
-![GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=N0TLuck0xF&theme=radical)  
-![GitHub Activity Graph](https://github-readme-activity-graph.vercel.app/graph?username=N0TLuck0xF&theme=github)  
+![Profile Views](https://komarev.com/ghpvc/?username=BaldwinShameforChange&color=blue)  
+![GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=BaldwinShameForChange&theme=radical)  
+![GitHub Activity Graph](https://github-readme-activity-graph.vercel.app/graph?username=BaldwinShameForChange&theme=github)  
 
 ---
 
